@@ -1,2 +1,0 @@
-# sardorbek
-fff
